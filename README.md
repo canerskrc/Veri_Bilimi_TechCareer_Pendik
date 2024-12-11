@@ -1,0 +1,1 @@
+# Veri_Bilimi_TechCareer_Pendik
